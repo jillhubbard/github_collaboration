@@ -4,7 +4,7 @@ It's easy if you try
 
 No hell below us
 
-Above us, only sky
+Above us, only sky 😁💕💕😘😘
 
 Imagine all the people
 
