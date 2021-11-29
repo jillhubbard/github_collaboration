@@ -16,7 +16,7 @@ Imagine there's no countries
 
 It isn't hard to do
 
-Nothing to kill or die for
+Nothing to kill or die for 💀💀💀
 
 And no religion, too
 
