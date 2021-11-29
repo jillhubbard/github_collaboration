@@ -10,7 +10,7 @@ Imagine all the people
 
 Livin' for today
 
-Ah
+Ah ❤✌☮
 
 Imagine there's no countries
 
